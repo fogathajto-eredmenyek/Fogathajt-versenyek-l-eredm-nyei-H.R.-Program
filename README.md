@@ -1,1 +1,1 @@
-# Fogathajt-versenyek eredmenyei-H.R.-Program
+# Fogathajto versenyek eredmenyei-H.R.-Program
